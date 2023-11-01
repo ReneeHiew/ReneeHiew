@@ -1,6 +1,8 @@
 - 👋 Hi, I’m Renee Hiew
+- 🎓 I'm currently pursuing my studies in CyberSecurity at Asia Pacific University
 - 👀 I’m interested in travelling, learning languages, swimming, journaling and arts and crafts
-- 🌱 I’m currently learning Korean and being a better person
+- 🌱 I’m also currently learning Korean and to be a better person
+- 🦫 I love the sea and capybara
 - 📫 You can reach me through reneehiew1005@gmail.com
 
 <!---
