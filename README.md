@@ -2,7 +2,7 @@
 - 🎓 I'm currently pursuing my studies in CyberSecurity at Asia Pacific University
 - 👀 I’m interested in travelling, learning languages, swimming, journaling and arts and crafts
 - 🌱 I’m also currently learning Korean and improving my soft and hard skills
-- 🦫 I love the sea and capybara
+- 🦫 I love the sea, capybara and foooood
 - 📫 I can be reached through reneehiew1005@gmail.com
 
 <!---
